@@ -27,4 +27,4 @@
 ## 📬 Contact
 
 - GitHub: [@rladudgns4456](https://github.com/rladudgns4456)
-- Email: rladudgns4456@gmail.com
+- Email: rladudgns4456@naver.com
